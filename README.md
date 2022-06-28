@@ -9,7 +9,6 @@ The Content is all about my favorite hobbies, which is to watch Formula 1, with 
 Hopefully you may enjoy my website!
 
 
--MATTHEW ARIEL A. ENARLE BSCS 1-B
 
 
 
